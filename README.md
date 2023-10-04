@@ -1,32 +1,92 @@
-# Receta sopaipillas
+# alo
++ Alo?
 
+- Soy yo el chupa
 
-SOPAIPILLAS CHILENAS
++ Que pasa hermano
 
-Para unas 30 sopaipillas medianas, 20 grandesIngredientes:
+- Aonde tay?
 
-1 taza de puré de zapallo molido (yo uso en 1/2 lata de pumpkin puree en EEUU)
++ oe
 
-2 tazas de harina
+- Que?
 
-2 cucharaditas de polvos de hornear
++ oe hermano voy con el seba hueón va pegao hermano hueón!!!
 
-1 cucharadita de sal fina
+- Quien?
 
-3 cucharadas de manteca vegetal, margarina o mantequilla derretida
++ El seba hueón!!
 
-Preparación:
++ Oe
 
-Colocar la harina, polvos de hornear y la sal en la procesadora de alimentos y pulsar un par de veces para mezclar, agregar el resto de los ingredientes y pulsar hasta obtener una masa suave.
+- Que?
 
-O colocar la harina, los polvos de hornear y la sal en un bol amplio y revolver bien para mezclar. Agregar la manteca derretida y el puré de zapallo al centro y amasar hasta obtener una masa homogénea y suave.
++ Oe
 
-Dejar reposar 20 minutos.
+- Este culiao esta pegao en la cara atraezao de un balazo se arranco de la comisaria lo taba esperando al frente.. ta pegao hermanooo! le pegaron en el mate hermano!!!
 
-Uslerear sobre el mesón enharinado hasta dejarla del grosor deseado, a mi me gustan delgadas, de 1/2 cm. mas o menos.
++ EL OREJON?
 
-Calentar el aceite a 180C o 350F.
+- Siii hermano vente pa la clinica davila urgente recoleta hermano,  me lo traje pa aca hermano, haga el aguante hermano
 
-Freír unos 2-3 minutos por lado. Deben quedar bien doradas
++ Ya..ya ya.
 
-Sacar a un plato cubierto con toalla de papel para que absorba el aceite sobrante.
+- Hacela corta oye oye, voh teni alguna persona que cubra pa no llearlo pá alla? improvise hermano no se que hacer conchetumare!!
+
++ Aonde tan????
+
+- Voy pa la clinica davila recoleta hermanoo, vo teni una persona que le vea el mate hermano? le atravezo la cara hermano
+
++ Noooo si esa wea es brigido po chuchetumare esa wea es brigidoo loco AONDE TAAAN LOCOO?
+
+- EN RECOLETA CHUCHETUMARE A ONDE QUERI QUE ME LO LLEVEE? SI EL MACHUCAO TA MAL PO HERMANO, QUE HAGO?
+
++ LLEVATELO PAL HOSPITAL QUERI QUE SE MUERA BASTARDO CONCHETUMARE.....ja,ja,ja,ja,ja.
+
+-CHUCHETUMARE, OE PERKIN Y LA CONCHETUMARE, ME LO LLEVO PÁ LA CLINICA, GUSANO Y LA CONCHETUMARE TE OA SACARTE LA CONCHETUMARE TE IGO ALTIRO, GUSANO Y LA CONCHETUMARE MARICÓN Y LA CONCHETUMARE, VOY CON MI HERMANO HERIDO PÁ LA CAGÁ CHUCHETUMARE TE OA SACARTE LA CONCHETUMARE, JAIKRIL Y LA CONCHETUMARE, TE OA PITIARTE, TE OA CHUCHETUMARE, MI HERMANO SE VA MURIENDO QUE HABLAI WEAS BACAYO Y LA CONCHETUMARE.
+
++ HERMANO, CHUCHETUMARE AONDE ESTAN LLEATELO PÁ LA CLINICA LOCO..QUE HUAAÁ...
+
+-VOY PÁ LA CLINICA DAVILA CHUCHETUMARE, SOY EL UNICO, VOY AQUI CHUCHETUMARE, TOY COMO LOCO, QUE ME HABLAI CHUCHETUMARE VOY LLORANDO SAPO Y LA CONCHETUMARE, VOY LLORANDO...
+
++ AONDE..
+
+- CLÍNICA DAVILA RECOLETA, SAPO CONCHETUMARE...
+
++ VAI ESPANTAMOIL LONGI CULIAO. Biiiip.
+
+- Alo?
+
++ Oe hermano, hermano, él él loco es de kinesiologo hueón, no sirve el loco hueón, dice que él lo puee tenerlo, pero es de kinesiologo, eh otra wea na que ver. (Voces) Mira nosotros vamos pá lla pá tu casa ya?.
+
++ Hermano, dice que es kinesiologo el loco y no sirve, dice el chupa, no sirve. (Voces) Pura Carne.
+
+- Oe pá onde lo llean?  Ahhh..pá que lao lo llean?
+
++ Ibamos a tirar pa puente hermano.
+
+- Que yo ando con el taita aquí, porque no y allá en puente que..que.
+
++ Oye...no te escucho bien hermanito, dime hablame tranquilo, que paso?
+
+- Pá que lao lo llevan? (Voces) Llevemolo!!!! Llevemolo!!!
+
+- Ando con el papá aqui.
+
++ Hermano....dime hermano que no te escucho hueón!!!
+
+- Pa onde lo llean?
+
++ Dice pa onde amo a llearlo a la finale poh...el chupa..el chupa.
+
++ Pa puente.
+
+- Ya, ya.
+
+- Alo?
+
++ Quien es?
+
+- Yo el chupa hermanoo.
+
++ Chupa escuchame, escuchame, este culiao esta, esta este culiao esta reaccio reacciona me habla, sae too, sae too, esta atraesao de la cara, pero no del cerebro, este culiao lo lleamos pa la clinica davila. Escuchame!!! Lo lleamos a la clinica davila y ahora me dijo que lo lleve pá la Indisa, un poquito mah arria, asi que seguí por Santa Maria derecho, pá la Indisa (conchetumare!! Los pacos)
